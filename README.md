@@ -99,3 +99,39 @@ Your players will fawn over your ProtocolLib-powered plugins. Server admins will
 So save your server some trouble and drop Bukkit like the hot mess it is. Install ProtocolLib today and become the plugin dev you were always meant to be! Just don't blame me if you start waking up mumbling about packet IDs and varints. The protocol life chose you, my friend.
 
 Say bye to Bukkit, and hello to the real star - ProtocolLib. Your code will thank you! Or it would, if, you know, code could talk.  :laughing: Go forth and code, my plugin people! The future awaits!
+
+# How to Definitely Get Into Stuyvesant High School
+> A Foolproof 9-Step Plan
+
+Getting into Stuyvesant High School in New York City is notoriously difficult. Every year, over 27,000 students take the brutal Specialized High School Admissions Test (SHSAT) for only about 800 coveted spots at Stuyvesant. The competition is fierce. But don't worry - follow these totally ethical tips and your acceptance letter is guaranteed.
+
+##### Step 1: Bribe the Admissions Officers
+Slipping a few Benjamins under the table is a tried-and-true method. March right into the admissions office and subtly ask “how much?” while tapping a thick envelope. If bribery isn't your style, consider blackmail - surely you can dig up some dirt on these administrators. Exploit their weaknesses! Threaten to expose their secret social media profiles or tell their spouses about that “work conference” in the Bahamas. They'll beg you to attend Stuyvesant to keep your mouth shut.
+
+##### Step 2: Seduce Your Way In
+Consider using your feminine wiles or masculine charm to seduce a Stuyvesant teacher or student and have them put in a “good word” for you. Bat your eyelashes, flex your muscles, do whatever it takes! Once admitted, promptly dump them - you've got what you needed. Just make sure not to break their heart until after the acceptance letters have been mailed.
+
+##### Step 3: Burn the Evidence
+If you bombed the SHSAT, not to worry - just raid the testing center at night, Mission Impossible-style, and steal the answer sheets. Then uncover the scanner that grades the tests and reprogram it to automatically give you a perfect score. Make sure to also steal the handwritten test booklets and burn them to eliminate any evidence. You'll get into Stuyvesant, and no one will be the wiser that you were really no smarter than a sea slug on test day.
+
+##### Step 4: Start a Viral Movement
+In this social media age, viral internet fame is a proven path to success. Start the hashtag #Accept[YourName]ToStuyvesant and begin bombarding Stuyvesant's Facebook, Twitter, and Instagram accounts with emotional pleas from friends, family, celebrities, politicians, and psychedelic llamas to accept you. Include heart-wrenching personal stories of adversity you've overcome. Stuyvesant won't know what hit them - their social media managers will beg the administration to offer you admission just to make the barrage of notifications stop.
+
+##### Step 5: Call in Favors from Powerful Friends
+If your family or friends happen to know Mayor de Blasio or Governor Cuomo, now is the time to call in favors. Have your politically-connected allies pressure Stuyvesant with thinly-veiled threats to cut funding or resources if they don't accept you. Stuyvesant will surely acquiesce to avoid angering their powerful overlords in city and state government. 
+
+##### Step 6: Hire an Impersonator to Take the SHSAT for You
+Find a smart but down-on-their-luck teen and pay them to take the SHSAT in your place. Provide them with a wig, glasses, and your identification to help them play the role. Tell them to get a perfect or near-perfect score to ensure your acceptance. Once admitted, the impersonator’s work is done - pay them off and threaten to turn them into the authorities if they ever reveal the trickery. Your secret is safe!
+
+##### Step 7: Sedate your Competition
+Slip some sleeping pills into the water and snacks of high-scoring students taking the SHSAT testing center. With your nemeses snoozing during the exam, the scoring curve will tilt in your favor. Sabotage does the body good!
+
+##### Step 8: Buy yourself a building
+Donate a large sum of money to have Stuyvesant name a library, athletic field, or hall in your honor. They'll feel obligated to accept you as a student to save face, even if you can barely spell “Stuyvesant.” Generosity has its rewards!  
+
+##### Step 9: Threaten a hunger strike.
+Announce you will stage an indefinite hunger strike in front of Stuyvesant until they accept you as a student. They won't want the bad publicity of you passing out or worse on their doorstep. Your life for your dreams - that's what real sacrifice is all about!  
+
+There you have it - 9 proven tactics that are 100% guaranteed* to get you into Stuyvesant High School. Now get out there and do whatever it takes to gain admission to this prestigious institution, no holds barred! The future is yours for the rigging!
+
+*The author does not actually guarantee admission to Stuyvesant High School. Your mileage may vary.
