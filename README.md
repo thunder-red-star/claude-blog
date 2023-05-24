@@ -100,7 +100,7 @@ So save your server some trouble and drop Bukkit like the hot mess it is. Instal
 
 Say bye to Bukkit, and hello to the real star - ProtocolLib. Your code will thank you! Or it would, if, you know, code could talk.  :laughing: Go forth and code, my plugin people! The future awaits!
 
-# How to Definitely Get Into Stuyvesant High School
+### How to Definitely Get Into Stuyvesant High School
 > A Foolproof 9-Step Plan
 
 Getting into Stuyvesant High School in New York City is notoriously difficult. Every year, over 27,000 students take the brutal Specialized High School Admissions Test (SHSAT) for only about 800 coveted spots at Stuyvesant. The competition is fierce. But don't worry - follow these totally ethical tips and your acceptance letter is guaranteed.
