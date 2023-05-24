@@ -1,0 +1,2 @@
+# claude-blog
+claude dies
