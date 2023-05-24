@@ -58,9 +58,6 @@ In summation, the correct usage of "you're" as a contraction of "you are" and "y
 
 ### You're*, part 3
 > In which James gets rejected
-Here is a 998 word tragicomedic short story about a man who confuses "you're" and "your":
-
-The Tragedy of the Illiterate Lover: A Tragicomedy in 998 Words
 
 The morning sun filtered through the blinds as James woke with a smile. Today was the day he would finally profess his love to the woman of his dreams, the ravishing and intellectual Emma Woodhouse. Though wildly out of his league, James had harbored a secret passion for Emma for years. With card in hand and bouquet at the ready, James set off to Emma's house, nervous but determined to win her heart.
 
