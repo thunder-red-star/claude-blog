@@ -42,3 +42,16 @@
 19. You'ren't's* - Alas,your attempt to combine two contractions with an apostrophe is not grammatically correct. The proper contraction for "you are not is" "you aren't," not the incorrect "you'ren't's." 
 
 20. Your'nt* - My apologies, but "your'nt" is not a valid contraction in the English language. The correct form for "your not" is "you're not" or "you aren't." Nonetheless, your creativity and humor throughout this exercise have been quite impressive.
+
+### You're*, part 2
+> The Importance of Proper Contraction and Possessive Pronoun Use: A Tragicomedy in 699 Words
+
+The English language is a strange and confusing beast. We have so many rules and exceptions to those rules that at times it can feel utterly nonsensical. However, there are a few basic tenets of proper English usage that are critical to understand, lest you end up sounding like a babbling buffoon. Chief among these are the proper use of contractions and possessive pronouns like "you're" and "your." 
+
+Misuse of these simple words is rampant and a true tragedy of our time. When I see "your" used in place of "you're" or vice versa, a little part of me dies inside. Such mistakes are the hallmark of an ignorant proletariat, and risk making the offender seem daft, doltish, or just plain dumb. As an educated, cultured, and sophisticated member of the upper crust, employing such grotesque linguistic gaffes would be unthinkable. I break out in hives at the mere thought of such uncultivated use of my beloved mother tongue.
+
+Now you, dear reader, may be thinking that I'm making much ado about nothing. You may believe that as long as your meaning is conveyed, the minutiae of proper grammar and spelling matter little. To you I say, "pshaw!" Communication is as much an art form as it is the simple transference of information. When I see "you're" used in place of "your," I do not weep simply due to the loss of grammatical precision. No, I mourn the lost opportunity to craft language with all the delicate beauty and nuance of which it is capable. The written word can be poetry, and we must treat it as such! 
+
+Some make the argument that as long as one's speech or writing is clear, the rules of grammar are unimportant; I counter that precision with language reflects precision of mind. The intellectual superiority of someone meticulous in their grammar and spelling is self-evident when compared to those slovenly in speech or prose. While strict prescriptivism has its limits, a fundamental grasp of basic rules helps shape a logical, ordered intellect, the lack of which would be laughable were its consequences not so dire!
+
+In summation, the correct usage of "you're" as a contraction of "you are" and "your" as a possessive pronoun is essential for anyone aspiring to sound educated and intellectually adroit. Their misuse marks the author as ill-learned, dim-witted, and inattentive to detail. So the next time your fingers twitch over the keyboard, pondering whether "you're" or "your" is appropriate, consider that this may be no mere grammatical trifle, but a crossroads of idiocy and aptitude, buffoonery and brilliance. The choice is yours...or rather, you'res.
