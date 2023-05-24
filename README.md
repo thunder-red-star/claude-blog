@@ -55,3 +55,29 @@ Now you, dear reader, may be thinking that I'm making much ado about nothing. Yo
 Some make the argument that as long as one's speech or writing is clear, the rules of grammar are unimportant; I counter that precision with language reflects precision of mind. The intellectual superiority of someone meticulous in their grammar and spelling is self-evident when compared to those slovenly in speech or prose. While strict prescriptivism has its limits, a fundamental grasp of basic rules helps shape a logical, ordered intellect, the lack of which would be laughable were its consequences not so dire!
 
 In summation, the correct usage of "you're" as a contraction of "you are" and "your" as a possessive pronoun is essential for anyone aspiring to sound educated and intellectually adroit. Their misuse marks the author as ill-learned, dim-witted, and inattentive to detail. So the next time your fingers twitch over the keyboard, pondering whether "you're" or "your" is appropriate, consider that this may be no mere grammatical trifle, but a crossroads of idiocy and aptitude, buffoonery and brilliance. The choice is yours...or rather, you'res.
+
+### You're*, part 3
+> In which James gets rejected
+Here is a 998 word tragicomedic short story about a man who confuses "you're" and "your":
+
+The Tragedy of the Illiterate Lover: A Tragicomedy in 998 Words
+
+The morning sun filtered through the blinds as James woke with a smile. Today was the day he would finally profess his love to the woman of his dreams, the ravishing and intellectual Emma Woodhouse. Though wildly out of his league, James had harbored a secret passion for Emma for years. With card in hand and bouquet at the ready, James set off to Emma's house, nervous but determined to win her heart.
+
+Emma was in the midst of penning her weekly column for the literary magazine she edited when she heard a knock at the door. To her surprise, it was James, red-faced and slightly disheveled, clutching a bouquet of wilted flowers. 
+
+"Emma, my darling, I have come here today to tell you that you're the love of my life," James proclaimed. Emma frowned, noticing his error immediately. 
+
+James continued, oblivious, "Ever since I first laid eyes on you're beauty, I have thought of little else."
+
+Emma scowled, rage boiling within her at his misuse of "you're" in place of "your." How could she love a man so ignorant that he confused contractions and possessives? Despite his apparent affection, James' dimwitted disregard for proper grammar marked him as an unlearned buffoon utterly unworthy of her intellect and sophistication.
+
+"I cannot return you're love," Emma finally replied, her lips curling around "you're" with palpable distaste.
+
+Crestfallen, James stared in disbelief. "But why not?" he pleaded. "You're all I ever wanted, the woman of my dreams!" 
+
+Emma sighed. The poor fool simply didn't comprehend his linguistic ineptitude. "I do not mean to be unkind," she said, "but you're woeful misuse of 'you're' demonstrates that we inhabit altogether different intellectual spheres. Now please, leave at once and do not return!"  
+
+She slammed the door, leaving James stunned on her doorstep, his dreams shattered into a thousand pieces. How could something as trivial as grammar thwart his heart's deepest desire? Dejected, he wandered home, reflecting on where he had gone wrong. Finally the light of realization dawned—in his flowery declarations of love, he had employed "you're" and "your" interchangeably! No wonder the erudite Emma had scorned him. He had sabotaged his own suitability through ignorance of basic English.
+
+The end.    James resolved to study proper grammar and vocabulary assiduously, hoping that one day his newfound knowledge might win Emma's heart, unless of course, she deemed his prior mistake irremediable. The moral of this woeful tale? Equivocate "you're" and "your" at you're own peril, or you may find true love forever beyond you're reach.
